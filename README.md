@@ -1,0 +1,1 @@
+proyecto seguimiento capacitación en seguridad informática e IA
